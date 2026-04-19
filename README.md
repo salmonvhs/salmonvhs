@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=theIongwalk&color=dca5ae&abbreviated=true&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=salmonvhs&color=4f3141&abbreviated=true&style=for-the-badge)
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=z3r9frkfhicg6k9gpgdk726tg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
@@ -8,31 +8,32 @@
 <div class="row no-gutters">
 <div class="col-md-6 col-4 p-1">
 <p class="p-3" div style="width:190px;height:190px;border:2px solid #b980a2">
-<img src="https://i.ibb.co/fGYvZ48c/ezgif-8feeb94e4c962230.png">
+<img src="https://files.catbox.moe/vnvij1.png">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=galmuri9&pause=1000&color=B8C4DE&center=true&width=435&separator=%3C&lines=;+%22An+honest+conversation...%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AA7265&center=true&width=435&separator=%3C&lines=;+%22We're+starting+to+look+%3Clike+eachother.%22%3C-+Hey%2C+Nothing.)](https://git.io/typing-svg)
   
 </div>
 <div class="col-md-6 col-8 p-1">
 <p class="p-3" div style="width:190px;height:190px;border:2px solid #b980a2">
-<img src="https://adriansblinkiecollection.neocities.org/e93.gif">
-<img src="https://adriansblinkiecollection.neocities.org/g77.gif">
-<img src="https://adriansblinkiecollection.neocities.org/e65.gif">
-<img src="https://adriansblinkiecollection.neocities.org/g99.gif">
-<img src="https://adriansblinkiecollection.neocities.org/x38.gif">
-<img src="https://files.catbox.moe/kxaf54.gif">
-<img src="https://adriansblinkiecollection.neocities.org/u3.gif">
+<img src="https://64.media.tumblr.com/5913184eb66b09cdb1a1a04c7304b4f5/d963aa2f83513352-e3/s250x400/9aab32873817816cdb5869ab81eca9b447e1c640.gifv">
+<img src="https://64.media.tumblr.com/f563f87fd04fcf0bf9d9f7b386158e3c/21f22365cf0849e1-87/s250x400/114b76d9b15551c3628f0f704978d8d6f92df9a0.gifv">
+<img src="https://64.media.tumblr.com/289da4c66d11c610ace678e76d575edf/3419dd75f9f83f1f-eb/s250x400/cd9ed705e3988aa4f94832f3a47d2ac62d6b4543.gifv">
+<img src="https://64.media.tumblr.com/d0e84b6c1a9cf805dc7e4fa6bb6d91fb/3cbd3e1699221007-71/s250x400/8be6ec5f4fbf43c5cb5dd2bdcb79dceabb5d2bea.gifv">
+<img src="https://64.media.tumblr.com/16aa83f99032ca7ac20d66005e12d241/fa3a10fe3987995c-90/s250x400/891ce5e1e2afc0b4b3b0f32c843bba380e5ef13d.gifv">
+<img src="https://adriansblinkiecollection.neocities.org/a10.gif">
+<img src="https://adriansblinkiecollection.neocities.org/a63.gif">
 </div>
 </div>
 <center>
-<img src="https://64.media.tumblr.com/3e2c9508d8df9528e4116c8a20e03b78/03557b5a125cb7ec-11/s100x200/8abf9478ace2d95005fc3c365883dee4fc644fdd.pnj" width="93px">
-<img src="https://files.catbox.moe/tz7ssj.png" width="93px">
-<img src="https://files.catbox.moe/dvrya0.jpeg" width="93px">
-<img src="https://64.media.tumblr.com/ba2d61550affd39f2ef2a5a2ccf7d412/c8a17f0aed5a5158-27/s100x200/759ac41a48d21fdfb756eac2b9f673f45990108d.pnj" width="93px">
+<img src="https://64.media.tumblr.com/e25634c6cc6e0f194cc2d08d4f3272bf/3061a5a1dfc104a8-a5/s100x200/d4ffa8f548d537ea474f7b3c8646f8f68816d27d.gifv" width="93px">
+<img src="https://adriansblinkiecollection.neocities.org/stamps/d53.png" width="93px">
+<img src="https://64.media.tumblr.com/209e1871c637e1669741714e48da8d6f/903596e4dc994aaf-52/s100x200/9f86c59e6de79761764fd6717d6689c3d5ab423b.gifv" width="93px">
+<img src="https://64.media.tumblr.com/08f47114fb334e3bf3312b220ef704f7/0bf5d187433b019b-c3/s100x200/439f9ed0d49027962b5d3a29281a3decf95a4aab.pnj" width="93px">
 </center>
-<div style="border:2px solid transparent;padding-left:5px"><b><u>he/him ♡ 17 ♡ cst</u></b></div>
-<div style="font-size:14px;padding-left:5px;overflow:auto;height:100px">hi... i'm augustine i am very socially anxious and shy so i probably won't reach out to anyone, but i don't mind making friends. i am a digital artist who draws on animal jam and ibispaintx! i love hetalia and studio investigrave a lot. i am the real augustine orlov/srs i will instantly block doubles so y'all best dni please! call me delusional if you want i do not really gaf give a fuck lel.</div>
-<img src="https://64.media.tumblr.com/e41d50d08f5b19098a49aa66c2543e4f/4e2644e63302dee9-23/s2048x3072/ae82c34a4a435211b9113d676070b99d6d0eafb8.pnj">
+<div style="border:2px solid transparent;padding-left:5px"><b><u>he/him ♡ 2008 ♡ cst</u></b></div>
+<div style="font-size:14px;padding-left:5px;overflow:auto;height:100px">hi... i'm kodiak i am very socially anxious and shy so i probably won't reach out to anyone, but i don't mind making friends. i am a digital artist who draws on animal jam and ibispaintx. i love 2p canada a lot,,, he is so me me me. i also love hetalia in general, horror games, the music artist hey nothing, and splatter films. i am a monotonous person, that doesn't mean i'm not interested though. don't take it as me being rude please as i literally have no friends and will be oh so overjoyed to make some. </div>
+
+<img src="https://64.media.tumblr.com/08aaf9031ae1a001d74050b71492a1a0/bf2611b1e77359db-f0/s540x810/7464439ae3c05e4282af2fb7953ebab852e69839.pnj">
 
 
 
@@ -45,3 +46,6 @@
   ![](https://files.catbox.moe/yqh2rj.gif) ![](https://files.catbox.moe/vpt8hd.gif) ![](https://files.catbox.moe/b9enu2.gif) ![](https://adriansblinkiecollection.neocities.org/z30.gif) ![](https://files.catbox.moe/fvhu2x.gif)
 </details>
 
+![](https://files.catbox.moe/ltfadm.png)
+
+oh yes. there will be blood.
