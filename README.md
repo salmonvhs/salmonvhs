@@ -8,7 +8,7 @@
 <div class="row no-gutters">
 <div class="col-md-6 col-4 p-1">
 <p class="p-3" div style="width:190px;height:190px;border:2px solid #b980a2">
-<img src="https://files.catbox.moe/vnvij1.png">
+<img src="https://files.catbox.moe/6ti0bw.png">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AA7265&center=true&width=435&separator=%3C&lines=;+%22We're+starting+to+look+%3Clike+eachother.%22%3C-+Hey%2C+Nothing.)](https://git.io/typing-svg)
   
