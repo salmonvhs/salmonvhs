@@ -46,6 +46,8 @@
   ![](https://files.catbox.moe/yqh2rj.gif) ![](https://files.catbox.moe/vpt8hd.gif) ![](https://files.catbox.moe/b9enu2.gif) ![](https://adriansblinkiecollection.neocities.org/z30.gif) ![](https://files.catbox.moe/fvhu2x.gif)
 </details>
 
+![](https://static.wikia.nocookie.net/dont-starve-game/images/f/f3/Lucy_the_axe_emote_in_Terraria.gif/revision/latest?cb=20211201163339)
+
 ![](https://files.catbox.moe/gw7jqa.png)
 
 oh yes. there will be blood.
