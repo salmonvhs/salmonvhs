@@ -46,6 +46,6 @@
   ![](https://files.catbox.moe/yqh2rj.gif) ![](https://files.catbox.moe/vpt8hd.gif) ![](https://files.catbox.moe/b9enu2.gif) ![](https://adriansblinkiecollection.neocities.org/z30.gif) ![](https://files.catbox.moe/fvhu2x.gif)
 </details>
 
-![](https://files.catbox.moe/3oxk7n.gif)
+![](https://files.catbox.moe/gw7jqa.png)
 
 oh yes. there will be blood.
